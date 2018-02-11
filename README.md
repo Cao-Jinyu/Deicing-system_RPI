@@ -1,4 +1,4 @@
-![dei cing 1](https://user-images.githubusercontent.com/27271468/36057595-e2d2ec90-0e07-11e8-832d-bfd9634dd671.png)  
+![dei cing 2](https://user-images.githubusercontent.com/36344537/36075929-44b53396-0f4d-11e8-983c-956414d058c5.png)
 ========
 
 ## Idea
